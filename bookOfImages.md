@@ -1,3 +1,4 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/utah-public/blob/main/aux16447.jpeg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/utah-public/blob/main/aux16606.jpeg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/utah-public/blob/main/aux16617.jpeg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/utah-public/blob/main/aux167.jpeg)
